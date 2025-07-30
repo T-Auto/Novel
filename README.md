@@ -9,6 +9,16 @@
 ## 卷一：墟光城
 旅途第一站，赛博朋克世界
 
+## 番外篇
+
+### 校园篇
+
+暮雪经历的欢乐校园剧情
+
+### 外勤篇
+
+暮雪出勤奇特世界的单元剧短篇合集
+
 # 人设
 ![img](https://github.com/T-Auto/Novel/blob/main/%E7%9B%B8%E5%85%B3%E8%AE%BE%E5%AE%9A/%E4%BA%BA%E8%AE%BE%E5%9B%BE.jpeg)
 EPOQUE子品牌 [昔时/Passe]系列精选款/邻家魔法使。
